@@ -1,6 +1,8 @@
-<p align="center">
-// Shadz ୨୧ Neo
-꒰ᐢ⸝⸝⸝⸝ᐢ꒱ He。Him ུ۪۪ ໒꒱
-FICTKIN ◞◟ metal yume . ݁₊ ⊹
-16 ₊ ★ C+H OK!!!
-Ships int ꒰ ♪ ꒱ yume sharing!</p>
+<p align="center"><img src="https://files.catbox.moe/95mo56.png"/>
+<p align="center"><img src="https://files.catbox.moe/pag933.png"/>
+<p align="center">Shadz ୨୧ Neo
+<p align="center"><br/>꒰ᐢ⸝⸝⸝⸝ᐢ꒱ He。Him ུ۪۪ ໒꒱
+<p align="center"><br/> FICTKIN ◞◟ metal yume . ݁₊ ⊹
+<p align="center"><br/> 16 ₊ ★ C+H OK!!!
+<p align="center"><br/> Ships int ꒰ ♪ ꒱ yume sharing!</p>
+<p align="center"><img src="https://files.catbox.moe/bld01s.png"/>
